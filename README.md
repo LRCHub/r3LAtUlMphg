@@ -1,0 +1,44 @@
+# 幽閉サテライト、senya – 壊れた運命を紡いで
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+yubi wo sasarete hisohiso chiisana warai wo
+kikoenai furi shita
+
+watashi no koto wo kawaisou to omou hito ni
+kansha suru furi shita
+
+atatakasa ni emi wo moratte mo
+anata wo omoidashite shimau
+
+yume nara hayaku samete nani ni mo warui koto shitenai yo
+keiko datte kakasazu shiteru
+
+namida dake wa nagasu na anata no oshie ni
+sakarai sou ni nari hitasura yozora wo miageta
+
+are kara ikutsu toshi wo kasanete kita darou ka
+anata wa ima mo inai
+
+te awase wo suru yume wo nando mita darou ka
+toutei kanawanai...
+
+nukumori ni tsurarete hohoemu
+shukumei wo sukoshi zutsu tsumugu
+
+kowareta unmei da to omotteta keredo
+sukoshi zutsu watashi ni mo hikari ga mieta
+
+kibishisa ni hontou no yasashisa ga aru to
+mi wo motte shiru hibi onore no yowasa to tatakae
+
+yuzurenai takusan no kizuna
+kizami sugita ima no watashi wa
+
+anata ni kansha shiteru douji ni nikui ga
+ushinatte, te ni ireta watashi dake no sekai wo
+
+kowareta unmei kara nigenai tsuyosa wo
+anata ni mise tsukeru you ni ikiru to chikatta
+```
